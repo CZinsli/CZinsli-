@@ -1,6 +1,5 @@
 # Caleb Zinsli
-## adress- 3354 East Cook Road
-## Phone Number- 810-445-8450
+
 
 ## How to reach me:  
 
@@ -72,4 +71,6 @@ Friendly
 	   </a>  
       <a href="https://github.com/CZinsli/github-readme-stats">
 	       <img height=150 src="https://github-readme-stats.vercel.app/api/top-langs/?username=yourusername&layout=compact"/>
-	   </a>
+	
+
+
