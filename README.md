@@ -4,9 +4,9 @@
 ## How to reach me:  
 
 <a href='mailto:calebazinsli18@gmail.com'>calebazinsli18@gmail.com</a>  
-At Instagram Caleb Zinsli
+At Instagram Caleb Zinsli  
 ![Alt](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQMOKFXLzMVZHRMNZuZ0ROoP-0TPwgewfbUSP_cIcrXHZNFNwiLMgeWj466:https://images.rawpixel.com/image_png_800/cHJpdmF0ZS9sci9pbWFnZXMvd2Vic2l0ZS8yMDIyLTA0L3JtNTMzLXJpcHBlZC1hLTAwMy5wbmc.png&s)  
-At Snapchat caleb.zinsli
+At Snapchat caleb.zinsli  
 ![Alt](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQCnPO9e6rAywi3K2B3I-hVU_THyiUBFUJnLaZMHiHoXL2WxKt5gaVTzseS:https://pbs.twimg.com/profile_images/1164248026946273280/RJatdZMp_400x400.jpg&s)
 
 ## Information about Myself:
